@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: M Zaidan Zidna Fann
 
-NIM : 
+NIM : 607062400042
 
 ## Instruksi
 
